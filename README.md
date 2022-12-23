@@ -31,4 +31,4 @@
 ## 📚 Contato
 
 Gmail : klayvemguik@gmail.com </br>
-LinkedIn :www.linkedin.com/in/klayvemguimaraes
+LinkedIn : www.linkedin.com/in/klayvemguimaraes
